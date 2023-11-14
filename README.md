@@ -1,1 +1,1 @@
-# potentiadog.github.ib
+# https://potentiadog.github.ib
